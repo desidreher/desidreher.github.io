@@ -6,3 +6,5 @@ Ich bin unteranderem angenehm, lustig, aufgestellt, aktiv, selbstbewusst und imm
 * aktiv
 * aufgestellt
 * angenehm
+
+> Alles braucht seine Zeit
