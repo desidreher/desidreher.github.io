@@ -7,4 +7,6 @@ Ich bin unteranderem angenehm, lustig, aufgestellt, aktiv, selbstbewusst und imm
 * aufgestellt
 * angenehm
 
+> Alles braucht seine Zeit
+
 <img src="https://images.unsplash.com/photo-1501555088652-021faa106b9b?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&auto=format&fit=crop&w=1353&q=80"/>
